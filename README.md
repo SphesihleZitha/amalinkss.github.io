@@ -1,0 +1,1 @@
+# amalinkss.github.io
